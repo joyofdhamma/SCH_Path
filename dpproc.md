@@ -1,3 +1,4 @@
+
 ---
 title: Navaratri Ghatasthapana (Ramakrishna Math style, simplified)
 tags: [navaratri, durga, puja, sadhana]
