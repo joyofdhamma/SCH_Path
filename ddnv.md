@@ -84,5 +84,5 @@
 **বাংলা অনুবাদ:** ওঁ, চণ্ডিকা দেবীকে প্রণাম। সবকিছু শ্রী জগদম্বার চরণে অর্পিত হোক।
 
 ॐ शरणागत दीनार्त परित्राण परायणे । सर्वस्यार्तिहरे देवि नारायणि नमोऽस्तु ते ॥
- Salutations to Devi Narayani, who is utterly dedicated to rescuing the helpless and distressed who seek refuge in Her, and who removes the suffering of all beings.
+Salutations to Devi Narayani, who is utterly dedicated to rescuing the helpless and distressed who seek refuge in Her, and who removes the suffering of all beings.
 
