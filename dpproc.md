@@ -4,10 +4,6 @@ tags: [navaratri, durga, puja, sadhana]
 ---
 
 # Navaratri Ghatasthapana: Simple Home Puja
-
-> Adapted from the Kamakhya Bhairava Upasaka Foundation PDF. Tantric steps removed (nyasa, bhuta-shuddhi, long deity lists).
-> Belur Math follows Bengal Kalpa (Bodhan on Shashthi). This is a home version using the Pratipada kalash. Check with your nearest Ramakrishna Math centre for exact rules.
-
 ## What you need
 
 - [ ] Clay or brass pot (kalash) and a wide plate or tray
