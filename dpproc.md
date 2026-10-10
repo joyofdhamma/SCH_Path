@@ -94,3 +94,6 @@ Do this before sunset on Pratipada, ideally in the Ghatasthapana muhurat (check 
 6. Put the grain sprouts in running water, or under a clean tree.
 7. Leave the rice out for birds.
 8. Tie the coins and a little rice in red cloth. Keep it in your puja space.
+
+## ॐ शरणागत दीनार्त परित्राण परायणे । सर्वस्यार्तिहरे देवि नारायणि नमोऽस्तु ते ॥
+Salutations to Devi Narayani, who is utterly dedicated to rescuing the helpless and distressed who seek refuge in Her, and who removes the suffering of all beings.
