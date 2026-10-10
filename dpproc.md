@@ -59,7 +59,7 @@ Do this before sunset on Pratipada, ideally in the Ghatasthapana muhurat (check 
 6. Do your daily count of whichever Durga mantra/stotram you have taken sankalpa of. 
 7. After completing the desired japa count, meditate on the following shloka for 5-10 mins minimum. Can meditate longer as per capacity.
 ** ॐ शरणागत दीनार्त परित्राण परायणे । सर्वस्यार्तिहरे देवि नारायणि नमोऽस्तु ते ॥ **
-Salutations to Devi Narayani, who is utterly dedicated to rescuing the helpless and distressed who seek refuge in Her, and who removes the suffering of all beings.
+> Salutations to Devi Narayani, who is utterly dedicated to rescuing the helpless and distressed who seek refuge in Her, and who removes the suffering of all beings.
 
 8. Sit in silence for 5 to 10 minutes.
 9. Do arati.
