@@ -1,63 +1,40 @@
-## সারসংক্ষেপ
+DURGA DVATRIMSHAT NAMAMALA - 32 NAMES OF DURGA
+(Sanskrit | Transliteration | English meaning)
 
-এই স্তোত্রটি "শ্রী দুর্গা দ্বাত্রিংশন্নামমালা", অর্থাৎ দেবী দুর্গার বত্রিশটি পবিত্র নামের মালা। "দুর্গ" শব্দের অর্থ দুর্গম বা কঠিন। মা দুর্গা সব দুর্গম বিপদ নাশ করেন, দুঃখ থেকে উদ্ধার করেন এবং দুর্গমাসুরকে বধ করেন। তিনি দুর্গম জ্ঞান, ধ্যান ও পথের দাত্রী এবং ভক্তের আশ্রয়। স্তোত্রের শেষে ফলশ্রুতি আছে। যে ভক্ত শ্রদ্ধাভরে এই নামমালা পাঠ করেন, তিনি সব ভয় থেকে মুক্ত হন।
+1.  दुर्गा | Durgā | The invincible one who removes difficulties
+2.  दुर्गातिशमनी | Durgātiśamanī | She who calms great distress
+3.  दुर्गापद्धिनिवारिणी | Durgāpaddhinivāriṇī | She who keeps calamities away
+4.  दुर्गमच्छेदनी | Durgamacchedanī | She who cuts through impassable obstacles
+5.  दुर्गसाधिनी | Durgasādhinī | She who helps us overcome hardship
+6.  दुर्गनाशिनी | Durganāśinī | Destroyer of hardship
+7.  दुर्गतोद्धारिणी | Durgatoddhāriṇī | She who lifts us out of misfortune
+8.  दुर्गनिहन्त्री | Durganihantrī | Slayer of hardship
+9.  दुर्गमापहा | Durgamāpahā | She who takes away what is hard to bear
+10. दुर्गमज्ञानदा | Durgamajñānadā | Giver of knowledge of the hard to reach
+11. दुर्गदैत्यलोकदवानला | Durgadaityalokadavānalā | Wildfire that burns the demons of hardship
+12. दुर्गमा | Durgamā | The one who is hard to reach
+13. दुर्गमालोका | Durgamālokā | She whose vision reaches the unreachable
+14. दुर्गमात्मस्वरूपिणी | Durgamātmasvarūpiṇī | Embodiment of the hard-to-know Self
+15. दुर्गमार्गप्रदा | Durgamārgapradā | She who shows the way through hard paths
+16. दुर्गमविद्या | Durgamavidyā | The knowledge that is hard to attain
+17. दुर्गमाश्रिता | Durgamāśritā | The refuge in hard times
+18. दुर्गमज्ञानसंस्थाना | Durgamajñānasaṃsthānā | Home of the hard-to-attain wisdom
+19. दुर्गमध्यानभासिनी | Durgamadhyānabhāsinī | She who shines in deep, difficult meditation
+20. दुर्गमोहा | Durgamohā | Dispeller of the delusion that makes life hard
+21. दुर्गमगा | Durgamagā | She who walks the hardest paths
+22. दुर्गमार्थस्वरूपिणी | Durgamārthasvarūpiṇī | Embodiment of the hardest truths
+23. दुर्गमासुरसंहन्त्रि | Durgamāsurasaṃhantri | Slayer of the demon Durgama
+24. दुर्गमायुधधारिणी | Durgamāyudhadhāriṇī | Bearer of formidable weapons
+25. दुर्गमांगी | Durgamāṅgī | She of the unassailable form
+26. दुर्गमता | Durgamatā | She whose nature is beyond reach
+27. दुर्गम्या | Durgamyā | She who is hard to reach
+28. दुर्गमेश्वरी | Durgameśvarī | Queen of the unreachable
+29. दुर्गभीमा | Durgabhīmā | The fearsome one, terrifying to hardship
+30. दुर्गभामा | Durgabhāmā | The radiant, fiery lady
+31. दुर्गभा | Durgabhā | The light that shines in hardship
+32. दुर्गदारिणी | Durgadāriṇī | She who tears hardship apart
 
----
-
-## শ্লোক অনুসারে অনুবাদ
-
-**শ্লোক ১**
-
-## **दुर्गा दुर्गार्तिशमनी दुर्गाऽऽपद्विनिवारिणी ।**
-## **दुर्गमच्छेदिनी दुर्गसाधिनी दुर्गनाशिनी ॥ १॥**
-
-**বাংলা অনুবাদ:** মা দুর্গা, তুমি দুর্গা। তুমি দুর্গতির দুঃখ শান্ত করো। তুমি ঘোর বিপদ দূর করো। তুমি দুর্গম বাধা ছেদন করো। তুমি কঠিন কাজ সিদ্ধ করো। তুমি দুর্গতি নাশ করো।
-
-**শ্লোক ২**
-
-## **दुर्गतोद्धारिणी दुर्गनिहन्त्री दुर्गमापहा ।**
-## **दुर्गमज्ञानदा दुर्गदैत्यलोकदवानला ॥ २॥**
-
-**বাংলা অনুবাদ:** মা, তুমি দুর্গতি থেকে উদ্ধার করো। তুমি দুর্গের মতো কঠিন বিপদ বিনাশ করো। তুমি দুর্গম সংকট হরণ করো। তুমি দুর্গম জ্ঞান দান করো। তুমি দুর্গ-অসুরদের জগতের কাছে দাবানলের মতো। তোমার তেজে তারা ভস্ম হয়।
-
-**শ্লোক ৩**
-
-## **दुर्गमा दुर्गमालोका दुर्गमाऽऽत्मस्वरूपिणी ।**
-## **दुर्गमार्गप्रदा दुर्गमविद्या दुर्गमाश्रिता ॥ ३॥**
-
-**বাংলা অনুবাদ:** মা, তুমি দুর্গমা। তোমার দর্শন বড় দুর্লভ। তোমার আত্মস্বরূপ সাধারণ বুদ্ধির অতীত। তুমি কঠিন পথেও পথ দেখাও। তুমি গূঢ় বিদ্যাস্বরূপা। যারা দুর্গম পথে চলে, তাদের তুমিই আশ্রয়।
-
-**শ্লোক ৪**
-
-## **दुर्गमज्ञानसंस्थाना दुर्गमध्यानभासिनी ।**
-## **दुर्गमोहा दुर्गमगा दुर्गमार्थस्वरूपिणी ॥ ४॥**
-
-**বাংলা অনুবাদ:** মা, দুর্গম জ্ঞানেই তুমি প্রতিষ্ঠিত। গভীর ধ্যানে তুমি উদ্ভাসিত হও। তুমি কঠিন মোহ নাশ করো। তুমি দুর্গম পথেও সঙ্গে চলো। তুমি পরম তত্ত্বের স্বরূপ।
-
-**শ্লোক ৫**
-
-## **दुर्गमासुरसंहन्त्री दुर्गमायुधधारिणी ।**
-## **दुर्गमाङ्गी दुर्गमता दुर्गम्या दुर्गमेश्वरी ॥ ५॥**
-
-**বাংলা অনুবাদ:** মা, তুমি দুর্গমাসুরকে সংহার করেছ। তুমি দিব্য অস্ত্র ধারণ করো। তোমার রূপ অনুপম ও দুর্লভ। তুমি অসীম মহিমাময়ী। সহজে কেউ তোমাকে পায় না। তুমি দুর্গম জগতের ঈশ্বরী।
-
-**শ্লোক ৬**
-
-## **दुर्गभीमा दुर्गभामा दुर्गभा दुर्गदारिणी ॥ ६॥**
-
-**বাংলা অনুবাদ:** মা, দুষ্টের কাছে তুমি ভয়ংকরী। তুমি দীপ্তিময়ী ও তেজস্বিনী। তুমি দুর্গতির অন্ধকার চিরে দাও।
-
-**শ্লোক ৭ (ফলশ্রুতি)**
-
-## **नामावलीमिमां यस्तु दुर्गाया मम मानवः ॥**
-## **पठेत् सर्वभयान्मुक्तो भविष्यति न संशयः ॥**
-## **॥ ॐ नमश्चण्डिकायै ॥ श्री जगदम्बार्पणमस्तु ॥**
-
-**বাংলা অনুবাদ:** যে মানুষ দুর্গা মায়ের এই নামাবলি ভক্তিভরে পাঠ করে, সে সব ভয় থেকে মুক্ত হয়। এতে কোনো সংশয় নেই।
-
-**শ্লোক ৮ (প্রণাম)  Chant and Meditation after full recitation** 
-
-## **ॐ शरणागत दीनार्त परित्राण परायणे ।**
-## **सर्वस्यार्तिहरे देवि नारायणि नमोऽस्तु ते ॥**
-
-**বাংলা অনুবাদ:** শরণাগত, দীন ও আর্তদের রক্ষায় তৎপর, সকলের দুঃখহারিণী দেবী নারায়ণী, তোমাকে প্রণাম।
+NOTES
+- "Durga" means "hard to reach" or "fortress." Most names play on this word.
+- #3 is often spelled दुर्गापद्विनिवारिणी (Durgāpadvinivāriṇī).
+- #4 is often spelled दुर्गमच्छेदिनी (Durgamacchedinī).
