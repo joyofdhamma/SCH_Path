@@ -1,8 +1,8 @@
-# दुर्गा द्वात्रिंशन्नामावली – 32 Names of Durga
 
-| Sanskrit | Transliteration |
-|---|---|
-| दुर्गा | Durgā |
+
+
+
+| दुर्गा | Durgā |  
 | दुर्गातिशमनी | Durgātiśamanī |
 | दुर्गापद्विनिवारिणी | Durgāpadvinivāriṇī |
 | दुर्गमच्छेदिनी | Durgamacchedinī |
